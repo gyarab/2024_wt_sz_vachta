@@ -14,4 +14,5 @@ Grodno, Poland
 > ### Died:
 > **March 26, 2011 (aged 84)
 Palo Alto, California, U.S.**
-> [From:]https://en.wikipedia.org/wiki/Paul_Baran
+> ## From:
+> https://en.wikipedia.org/wiki/Paul_Baran
