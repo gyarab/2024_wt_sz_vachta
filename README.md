@@ -11,3 +11,6 @@
 > 	**April 29, 1926
 Grodno, Poland
 (now Belarus)**
+> ### Died:
+> **March 26, 2011 (aged 84)
+Palo Alto, California, U.S.**
