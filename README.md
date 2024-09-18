@@ -1,5 +1,6 @@
-# Paul Baran ![Paul_Baran](https://github.com/user-attachments/assets/b214a9c8-da97-40e8-9342-76e27ac7d499)
-
+# Paul Baran 
+>
+  ![Paul_Baran](https://github.com/user-attachments/assets/b214a9c8-da97-40e8-9342-76e27ac7d499)
 >
 1.**Paul Baran was an American-Jewish engineer who was a pioneer in the development of computer networks.**
 > 
