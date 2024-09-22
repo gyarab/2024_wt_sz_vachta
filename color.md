@@ -6,6 +6,7 @@ Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >## Důkladnější popis jednotlivých barev:
 >### Červená
 >![360_F_245036112_Lf5C4B2zfWbVGoF1rHAj7IFdLFiSXDQj](https://github.com/user-attachments/assets/8ad7200b-2ac9-44af-81ef-9495a390053b)
+>
 >1.**Vzrušující, energická, prudká silná, mocná, spojená s představami ohně.**
 >
 >2.**Spojená s představami nebezpečí a krve či násilí.**
