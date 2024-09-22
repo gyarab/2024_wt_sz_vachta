@@ -20,6 +20,18 @@ Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >6.**Využívá se ve spojení s nápoji dodávající energii (Coca-Cola, některé energetické nápoje). V souvislosti s energií se často využívá kombinace žluté a červené (působí více).**
 >### Bílá
 >![0909b615aff6d9fb9033a6bce6c4cb8c](https://github.com/user-attachments/assets/2cae328d-4642-4d72-b6d0-d2377d5f79a8)
+>
+>1.**Nese v sobě čistotu a nevinnost.**
+>
+>2.**Navozuje pocit prázdnoty a napomáhá zvětšit prostor.**
+>
+>3.**Hodí se k propagaci luxusních výrobků, a to nejčastěji ve spojení s černou, zlatou nebo stříbrnou.**
+>
+>4.**Samostatná bílá je neurčitá, smutná, spojená s představou osvobození, absolutní svobody, nových začátků.**
+>
+>5.**V Asii je samostatná bílá symbolem bohatství, ale v Číně také smutku nebo pohřbu.**
+>
+>6.**Bílou barvu si spojujeme s mléčnými výrobky, nebo elektronikou do domácnosti.**
 
 
 
