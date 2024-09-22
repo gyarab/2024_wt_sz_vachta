@@ -35,6 +35,10 @@ Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >## Čerpal jsem z:
 >
 >https://cs.wikiversity.org/wiki/Manipulace_(psychologie)/Barvy_v_reklam%C4%9B
+>
+>https://bigg.cz/psychologie-barev-v-marketingu/
+>
+>https://www.marketingppc.cz/marketing/psychologie-barev/
 
 
 
