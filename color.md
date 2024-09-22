@@ -5,4 +5,5 @@
 Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >## Důkladnější popis jednotlivých barev:
 >### Červená
->![41YSHiMsi6L _AC_UF894,1000_QL80_](https://github.com/user-attachments/assets/cef922cd-97fd-476a-b93f-a94bc40796a7)
+>![360_F_245036112_Lf5C4B2zfWbVGoF1rHAj7IFdLFiSXDQj](https://github.com/user-attachments/assets/8ad7200b-2ac9-44af-81ef-9495a390053b)
+
