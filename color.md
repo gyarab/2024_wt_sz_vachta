@@ -18,4 +18,7 @@ Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >5.**Červená působí na zvýšení krevního tlaku a podporuje chuť k jídlu.**
 >
 >6.**Využívá se ve spojení s nápoji dodávající energii (Coca-Cola, některé energetické nápoje). V souvislosti s energií se často využívá kombinace žluté a červené (působí více).**
+>### Bílá
+>![png-transparent-white-roses-petal-white-flowers-thumbnail](https://github.com/user-attachments/assets/156253ed-7002-4058-b87d-d9ea8e7258cb)
+
 
