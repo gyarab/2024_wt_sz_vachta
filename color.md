@@ -19,6 +19,7 @@ Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >
 >6.**Využívá se ve spojení s nápoji dodávající energii (Coca-Cola, některé energetické nápoje). V souvislosti s energií se často využívá kombinace žluté a červené (působí více).**
 >### Bílá
->![png-transparent-white-roses-petal-white-flowers-thumbnail](https://github.com/user-attachments/assets/156253ed-7002-4058-b87d-d9ea8e7258cb)
+>![0909b615aff6d9fb9033a6bce6c4cb8c](https://github.com/user-attachments/assets/2cae328d-4642-4d72-b6d0-d2377d5f79a8)
+
 
 
