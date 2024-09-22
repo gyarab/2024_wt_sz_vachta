@@ -32,6 +32,9 @@ Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >5.**V Asii je samostatná bílá symbolem bohatství, ale v Číně také smutku nebo pohřbu.**
 >
 >6.**Bílou barvu si spojujeme s mléčnými výrobky, nebo elektronikou do domácnosti.**
+>## Čerpal jsem z:
+>
+>https://cs.wikiversity.org/wiki/Manipulace_(psychologie)/Barvy_v_reklam%C4%9B
 
 
 
