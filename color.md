@@ -7,9 +7,9 @@ Zdůrazňuje živelnost a zábavu spojenou s konzumací jejich nápojů.**
 >### Červená
 >![360_F_245036112_Lf5C4B2zfWbVGoF1rHAj7IFdLFiSXDQj](https://github.com/user-attachments/assets/8ad7200b-2ac9-44af-81ef-9495a390053b)
 >**Vzrušující, energická, prudká silná, mocná, spojená s představami ohně.**
-**Spojená s představami nebezpečí a krve či násilí.**
-**V Evropském středověku spojována s mocí, královskou barvou, barvou pokrevní legitimity , barvou katů.
-Rudá symbolizuje velké emoce jako například Hněv nebo lásku či vášeň.
-Červená působí na zvýšení krevního tlaku a podporuje chuť k jídlu. Využívá se v rychlém občerstvení (například KFC).
-Využívá se ve spojení s nápoji dodávající energii (Coca-Cola, některé energetické nápoje). V souvislosti s energií se často využívá kombinace žluté a červené (působí více).**
+>**Spojená s představami nebezpečí a krve či násilí.**
+>**V Evropském středověku spojována s mocí, královskou barvou, barvou pokrevní legitimity , barvou katů.**
+>**Rudá symbolizuje velké emoce jako například Hněv nebo lásku či vášeň.**
+>**Červená působí na zvýšení krevního tlaku a podporuje chuť k jídlu.**
+>**Využívá se ve spojení s nápoji dodávající energii (Coca-Cola, některé energetické nápoje). V souvislosti s energií se často využívá kombinace žluté a červené (působí více).**
 
